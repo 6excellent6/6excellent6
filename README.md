@@ -1,6 +1,6 @@
 ### 👋 Hi,there is wqueen.
 <br>
- ✍ A student is learning. <br>
+ ✍ A student like learning. <br>
  <br>
  ✌ Like HTML | CSS | JS <br>
  <br>
